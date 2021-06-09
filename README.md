@@ -1,1 +1,1 @@
-Please, anyone, how do i make CornerRadius Animation in wpf
+I like watching anime and reading manga and coding :)
